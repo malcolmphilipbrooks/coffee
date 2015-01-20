@@ -1,1 +1,1 @@
-Moi, je préfère le café noir.
+Ich mag schwarzen Kaffee.

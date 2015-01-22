@@ -1,1 +1,1 @@
-Ich mag schwarzen Kaffee. Sehr gut.
+Moi, je péfère le café noir.
